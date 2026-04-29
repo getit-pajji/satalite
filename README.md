@@ -1,2 +1,0 @@
-# satalite
-DHIGIUEF
